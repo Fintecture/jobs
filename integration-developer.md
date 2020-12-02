@@ -6,7 +6,7 @@ Full Time
 
 ## Location
 
-Paris
+Paris - Station F ( partial / full remote work possible )
 
 ## About Fintecture
 
